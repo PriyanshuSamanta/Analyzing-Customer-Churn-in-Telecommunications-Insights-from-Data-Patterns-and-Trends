@@ -143,6 +143,8 @@ Priyanshu Samanta
 
 GitHub: https://github.com/PriyanshuSamanta
 
+LinkedIn: www.linkedin.com/in/priyanshu-samanta-5542b923a
+
 Email: priyanshusamanta101@gmail.com
 ```
 
